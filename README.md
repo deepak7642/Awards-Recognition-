@@ -1,4 +1,4 @@
-# Hackathons-Recognization :-
+# 🏆 Awards & Recognition :-
 
 * ### **Represented Farmoid at the Bharat AI Summit 2026 at Bharat Mandapam (New Delhi)**
 
